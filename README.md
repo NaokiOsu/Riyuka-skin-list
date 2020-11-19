@@ -1,1 +1,1 @@
-# Riyuka-skin-list
+# Riyuka skin list
