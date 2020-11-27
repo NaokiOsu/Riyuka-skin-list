@@ -14,3 +14,6 @@
 
 # [Rafis.Refreshed 2020-01-13](https://www.mediafire.com/file/3e97e0664nr6eje/Rafis.Refreshed_2020-01-13.osk/file)
 ![](https://cdn.discordapp.com/attachments/715147940208967731/779026793192620072/1580460695_3.png)
+
+# [Gawr Gura Rika](https://cdn.discordapp.com/attachments/561364979731791882/781530955781242900/-Gawr_Gura-Fix_Rika.osk)
+![](https://cdn.discordapp.com/attachments/715147940208967731/781540466536742962/screenshot931.jpg)
