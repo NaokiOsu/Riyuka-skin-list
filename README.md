@@ -1,5 +1,8 @@
 # Riyuka skin list
 
+# [!!+wwsou+netnesonya](https://drive.google.com/file/d/1EckKjcRz2UqxkI-h0lAuIYwxeGf6JCJB/view?usp=drivesdk)
+![](https://i.imgur.com/mIxfLCZ.png)
+
 # [Selyu v2.3](https://www.mediafire.com/file/r2nmj480hicez9k/-_Selyu_v2.3.osk/file)
 ![](https://cdn.discordapp.com/attachments/715147940208967731/784873344172294184/1537800305_znikfll.png)
 
