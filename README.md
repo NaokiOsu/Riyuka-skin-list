@@ -1,5 +1,9 @@
 # Riyuka skin list
 
+# [Amasetic3](https://drive.google.com/file/d/1SdJUN5jDvEgmRC68NpAUuJt4VSr92hAq/view)
+![](https://cdn.discordapp.com/attachments/715147940208967731/788146410125787146/screenshot1005.jpg)
+
+
 # [!!+wwsou+netnesonya](https://drive.google.com/file/d/1EckKjcRz2UqxkI-h0lAuIYwxeGf6JCJB/view?usp=drivesdk)
 ![](https://i.imgur.com/mIxfLCZ.png)
 
